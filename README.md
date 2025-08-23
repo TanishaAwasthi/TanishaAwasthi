@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **awasthitanisha003@gmail.com**
 
-- 📄 Know about my experiences through my Resume [https://drive.google.com/file/d/1lrlo3MIjKoWPrtdfKUHgTEoGqupIZWXu/view?usp=drive_link](https://drive.google.com/file/d/1lrlo3MIjKoWPrtdfKUHgTEoGqupIZWXu/view?usp=drive_link)
+- 📄 Know about my experiences through my Resume [https://drive.google.com/file/d/1kWpHFB-J85u8Vu71ZQbxyP3k6Ja5JWO4/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
