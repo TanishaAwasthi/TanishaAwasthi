@@ -1,3 +1,4 @@
+![logo](https://github.com/TanishaAwasthi/TanishaAwasthi/blob/main/1744755609141.jpeg)
 <h1 align="center">Hi 👋, I'm Tanisha Awasthi</h1>
 <h3 align="center">A passionate Web & Application Developer from India.</h3>
 
